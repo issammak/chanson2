@@ -1,5 +1,5 @@
 # chanson2
-[Verse 1: Hyein, Haerin, Danielle, Hanni]
+je suis pas content
 Nangbihaji ma ne siganeun eunhaeng
 Seodulleoseo jeongnihae gyaeneun real bad
 Badajumyeon andwae
@@ -17,7 +17,8 @@ Hyejiniga eomchеong honnatdeon geunal
 Jiwoniga yeochinirang heeojin geunal
 Gyaeneun eonjena nega eopsi geunal
 Neomu meosinneun oseul ipgo geunal
-Heard him say
+behhhhhhhhh
+
 
 [Chorus: Haerin, Hyein, Hanni, Minji, *Danielle*]
 We can go wherever you like
